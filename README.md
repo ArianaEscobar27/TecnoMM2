@@ -1,1 +1,0 @@
-# lenguaje propuesta intectiva
